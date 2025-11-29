@@ -86,7 +86,7 @@ I have served as a peer reviewer for manuscripts submitted to the following inte
 
 ## Contact
 **Email:** naung1@lsu.edu  
-**Links:** [Google Scholar](https://scholar.google.com/citations?user=LTkXyr8AAAAJ&hl=en) • [GitHub](https://github.com/NyiNyi-14) • [LinkedIn](https://www.linkedin.com/in/nyi-nyi-aung/)
+**Links:** [Google Scholar](https://scholar.google.com/citations?user=LTkXyr8AAAAJ&hl=en) • [GitHub](https://github.com/NyiNyi-14) • [LinkedIn](https://www.linkedin.com/in/nyi-nyi-aung/) • [ORCID](https://orcid.org/0009-0000-2629-2142)
 
 ---
 
