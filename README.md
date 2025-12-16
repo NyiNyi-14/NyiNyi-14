@@ -1,3 +1,5 @@
+🔗 Please see my [Personal Website](https://nyinyiaung.com) for a detailed academic and professional background.
+
 # Nyi Nyi Aung, PhD Student
 
 I am completing my first year of the Ph.D. program in Mechanical & Industrial Engineering at Louisiana State University (LSU), USA. My academic background spans electrical power engineering, sustainable transportation, and control systems, with international training across Europe through the Erasmus Mundus Joint Master Degree (EMJMD) program.
